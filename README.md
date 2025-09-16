@@ -28,8 +28,8 @@
 ---
 
 ## Contact
-- Email: `saikarthik.oruganti@example.com`  _(replace with your actual email)_
-- LinkedIn: `https://www.linkedin.com/in/saikarthik-oruganti` _(add your real URL)_
+- Email: Karthiksaioruganti@gmail.com
+- LinkedIn: [`https://www.linkedin.com/in/saikarthik-oruganti`](https://www.linkedin.com/in/oruganti-sai-karthik)
 
 ---
 

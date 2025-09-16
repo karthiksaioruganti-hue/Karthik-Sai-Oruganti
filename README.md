@@ -1,4 +1,4 @@
-# Hi — I'm Saikarthik Oruganti 👋
+# Hi - I'm Saikarthik Oruganti 👋
 **MBA student @ Bitsom · Marketing & Business Development · Sales + Analytics**
 
 - 🧭 Interested in: Growth marketing, GTM strategy, quick commerce & D2C, product marketing, operations scale

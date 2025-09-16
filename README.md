@@ -1,5 +1,5 @@
 # Hi - I'm Saikarthik Oruganti 👋
-**MBA student @ Bitsom · Marketing & Business Development · Sales + Analytics**
+**MBA student @ Bitsom · Marketing & Sales + Analytics**
 
 - 🧭 Interested in: Growth marketing, GTM strategy, quick commerce & D2C, product marketing, operations scale
 - 💼 Experience: Sales & marketing roles (Radio Mirchi), Marketing intern @ Mercedes-Benz (PPO offered)
